@@ -1,0 +1,2 @@
+# lanadidi
+kuch nai
